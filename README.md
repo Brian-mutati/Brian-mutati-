@@ -1,3 +1,1 @@
-I would describe my self as highly curious and focused on learning in all part of life..
-I'm a graduate student from Kenya institute of mass communication, pursued Diploma in electrical and electronic engineering
- 
+#Brian mutati 
